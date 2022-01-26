@@ -5,3 +5,6 @@ https://medium.com/@ljj1373864457_43574/fluidity-%E6%B5%8B%E8%AF%95%E7%BD%91%E6%
 
 sense测试网教程
 https://mirror.xyz/swaping.eth/sLGK-44XVvvYT-Qndm7UATfdhqMTs2s_EBjPzWlN_i8?s=09
+
+
+https://discord.gg/qcqdSpqT
